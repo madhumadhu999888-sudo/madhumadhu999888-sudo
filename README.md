@@ -128,9 +128,6 @@ https://www.linkedin.com/in/madhu-bhimanathini/
 Email:
 [madhusudhan8954@gmail.com](mailto:madhusudhan8954@gmail.com)
 
-GitHub:
-https://github.com/madhumadhu999888-sudo
-
 ---
 
 ## ⭐ Quote
